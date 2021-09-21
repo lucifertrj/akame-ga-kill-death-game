@@ -1,0 +1,2 @@
+# akame-ga-kill-death-game
+Akame Ga Kill the anime, a dark humor anime with harsh reality and emotional moments. A complete Dark Fantasy genre-based anime that had major deaths in the entire series.  Have you seen Akame Ga Kill and Do you remember the order of Characters Death?. Then why don't you try out this game, where you need to enter the order of Character's Death from the beginning of the series till the end.
